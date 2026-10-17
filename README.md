@@ -1,1 +1,0 @@
-CariServis Takip — sürüm arşivi
